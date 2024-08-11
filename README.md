@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do WesleySantanna :P
+## Bem-vindo(a) ao perfil do WesleySantanna 😎
 
  <div>
    <a href="https://github.com/WesleySantanna">
